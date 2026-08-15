@@ -102,7 +102,7 @@ Learn more about them [here](http://www.cognifyz.com).
 ### **Connect with Me:**
 
 Feel free to connect with me on LinkedIn to discuss my internship experience and explore more about data analytics insights!  
-**[My LinkedIn Profile](https://www.linkedin.com/in/prashantsingh896/)**
+**[My LinkedIn Profile](https://www.linkedin.com/in/prateek-koshik-3572b032a)**
 
 ---
 
